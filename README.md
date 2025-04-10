@@ -1,1 +1,1 @@
-# Internship-Certificates
+# Internship/Training/Bootcamp Certificates
